@@ -1,0 +1,10 @@
+# F-z-r
+![image text](https://github.com/caizhenze/F-z-r/blob/master/1.jpg)<br>
+![image text](https://github.com/caizhenze/F-z-r/blob/master/2.jpg)<br>
+![image text](https://github.com/caizhenze/F-z-r/blob/master/3.jpg)<br>
+![image text](https://github.com/caizhenze/F-z-r/blob/master/4.jpg)<br>
+![image text](https://github.com/caizhenze/F-z-r/blob/master/5.jpg)<br>
+![image text](https://github.com/caizhenze/F-z-r/blob/master/6.jpg)<br>
+![image text](https://github.com/caizhenze/F-z-r/blob/master/7.jpg)<br>
+![image text](https://github.com/caizhenze/F-z-r/blob/master/8.jpg)<br>
+![image text](https://github.com/caizhenze/F-z-r/blob/master/9.jpg)<br>
